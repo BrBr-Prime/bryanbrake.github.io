@@ -1,3 +1,3 @@
-Blog and content page 
+Mastodon Verification 
 
-Bryan Brake
+<a rel="me" href="https://mastodon.social/@bryanbrake">Mastodon</a>
