@@ -1,3 +1,3 @@
 Blog and content page 
 
-coming soon
+Bryan Brake
