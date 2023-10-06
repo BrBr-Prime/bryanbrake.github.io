@@ -1,4 +1,5 @@
-Module 6 References - Harvard Business School
+Module 6 References - Harvard Business School - attended in 2023
+
 Chu, Kathy and Bob Davis. “As China’s Workforce Dwindles, the World Scrambles for Alternatives.” The Wall Street Journal (November 23, 2015).
 
 Chu, Kathy and Bob Davis. “China, Levi Strauss and the Long-Simmering Battle Over Labor Rights.” The Wall Street Journal (November 23, 2015).
