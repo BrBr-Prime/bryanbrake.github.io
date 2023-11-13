@@ -1,4 +1,4 @@
-Module 6 References (testing github)
+Module 6 References
 
 Chu, Kathy and Bob Davis. “As China’s Workforce Dwindles, the World Scrambles for Alternatives.” The Wall Street Journal (November 23, 2015).  
 
